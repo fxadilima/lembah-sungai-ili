@@ -474,3 +474,26 @@ Abigail terkejut. "Ayah, itu tempat tinggal suku-suku Oirat!"
 "Lalu kenapa?" tanya ayahnya dengan tenang, "Bukankah kakekmu juga dibesarkan di wilayah seperti itu?"
 
 
+A heartwarming 15th-century cinematic movie still of a Eurasian family resting by the tranquil banks of the Ural River at golden hour.
+
+In the center, Dario—a handsome, charismatic 39-year-old Eurasian man with dark hair and a neat black beard—sits on a woven travel rug. His wife Nadia, a gentle Eurasian woman in practical 15th-century traveling robes, holds a small sharp razor to his cheek, carefully trimming his beard while laughing warmly; Dario has a tiny minor scratch on his cheek from reacting to their banter.
+
+Sitting snugly right beside Dario on the rug is their 1-year-old baby daughter, Farah, bundled in cozy, patterned woolen blanket wraps, looking curiously at the camera. Nearby, their 10-year-old son Armin sits cross-legged on the grass, watching his father with admiration.
+
+In the background, calm horses graze along the sweeping green steppe landscape under a wide open sky, with the winding Ural River reflecting the warm sunset light. Photorealistic, emotional family storytelling, highly detailed fabrics and textures, 8k resolution, 16:9 aspect ratio. --ar 16:9
+
+
+Gambaran kasarnya adalah ini:
+
+Aku akan membuat Qi Shengniang meninggal secara wajar menjelang berusia 100 tahun, di Lingshe Dao. Ia dilahirkan tahun 1315, dan saat ini masih 1405. Kita akan membuat pacing cerita secara berangsur-angsur melambat, hanya menceritakan pondasi untuk era berikutnya, lalu merenggangkan jarak dari peristiwa ke peristiwa.
+
+Cerita di Book V akan kita tutup dengan meninggalnya Qi Shengniang, icon dari era Dinasti Yuan. Tak lama setelah itu, kita juga menceritakan Ah Xiu meninggal di rumah kayu yang nyaman, di pinggiran hutan utara. Ah Xiu tidak meninggalkan pesan apa-apa untuk anak-anak maupun cucu-cucunya yang dianggapnya hidup cukup nyaman. Tetapi saat itu yang hadir adalah Zhang Wuji dan Dongfang Yuxian, dengan Alessandra yang ikut menyaksikan peristiwa itu.
+
+Pesan terakhir Ah Xiu tanpa bicara: Ia hanya meletakkan tangan suaminya di atas tangan Dongfang Yuxian, lalu menutup matanya dengan tenang.
+
+Setelah itu, Alessandra dibiarkan berpikir sendiri.
+
+Zhang Wuji dan Dongfang Yuxian menghilang dari peredaran ke arah hutan, menuju ke wilayah liar lebih utara lagi, yang adalah pegunungan dingin.
+
+---
+
